@@ -2,7 +2,7 @@
 
 You have questions about LinkedIn headlines. This page gives you **straight answers** – character limits, emojis, keywords, update frequency – plus a few tips you won’t find in the standard FAQ.
 
-> 💡 Need a headline generated instantly? Try the **[Free LinkedIn Headline Generator](https://www.linkedin-headline-generator.com/faq)** – and check the full FAQ there.
+> 💡 Need a headline generated instantly? Try the **[Free LinkedIn Headline Generator](https://www.linkedin-headline-generator.com)** – and check the full [FAQ](https://www.linkedin-headline-generator.com/faq) there.
 
 ---
 
